@@ -1,4 +1,4 @@
-# 
+# rare Visual Studio for PC addons is the best Visual Studio for PC addons with submodule-management and debugging-tools. Safe, reliable, and optimized for maximum performance.
 
 
 
